@@ -1,6 +1,13 @@
-## Welcome to Life Pages
-Chuwei wishes to write an updated blog article weekly.
+# Welcome to Life Pages               
+            
+            
 
-Chuwei is the pigsney. So many parts in your eye are unknown to me. In many cases your voice may be the new boundary of my world. Your thoughts and stories are expected with zero ceasing, as an exchange of which I would also write an blog article attached with this page weekly (actually I hope that I would not eat my word). 
+## Inspiration from Beauty             
+
+**_We cannot live a singe day without imagination. Live like the waterflow exploring all landscape and humanity, and then go back to our bathtubs, for the moment all of a sudden, a new idea pops out of a shampoo bottle_**               
+                
+**[<span style="border-bottom:2px solid blue;">A Skyscraper and An Innovative Geometrical Method————2018.07.22</span>](https://github.com/zhouchw5/geometric.github.io/blob/master/README.md)**                
+
+
 
 
