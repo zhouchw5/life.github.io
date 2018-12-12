@@ -19,5 +19,9 @@
 ## Iterating Thinking of Our Ending          
 **[<span style="border-bottom:2px solid blue;">Iterating Thinking of Our Ending————2018.08.28</span>](https://www.zhouchuwei.com/till_the_end.github.io/)**  
 
+                     
+## Prefecture for Mandarin or Cantonese                      
+**_What's the meaning of life? It seems quite brash to answer such kind of questions. But I should try this time. The meaning of life is for people to figure out the objects that can be hardly described in their own language, which is also the inherent mission for each one. When you find the objects free of descriptions, you have found some missing pieces from the puzzle painting yourself completely. Just like the eye cannot see itself, when seeking the truths of yourself, you should focus on the things darker than the shadow, rather than those conspicuous objects. So simply speaking, life's meaning is to find yourself. It is not quite straightforward to understand this mission/meaning for life. _**                  
+
 
 
