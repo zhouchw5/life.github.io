@@ -4,7 +4,11 @@
 
 ## Inspiration from Beauty             
 
-**_We cannot live a singe day without imagination. Live like the waterflow exploring all landscape and humanity, and then go back to our bathtubs, for the moment all of a sudden, a new idea pops out of a shampoo bottle_**               
+**_We cannot live a singe day without imagination. Live like the waterflow exploring all landscape and humanity, and then go back to our bathtubs, for the moment all of a sudden, a new idea pops out of a shampoo bottle_**             
+             
+**[<span style="border-bottom:2px solid blue;">Some Interesting Discussions with My Classmates————2018.12.12</span>](https://github.com/zhouchw5/interaction.github.io/blob/discussion-with-my-classmates/README.md)**                 
+            
+            
               
 **[<span style="border-bottom:2px solid blue;">Parts of My Life in School of Physics, Sun Yat-Sen University (SYSU)————2018.09.01</span>](https://github.com/zhouchw5/interaction.github.io/blob/Life-in-SYSU/README.md)**                
            
