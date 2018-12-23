@@ -15,7 +15,10 @@
            
 **[<span style="border-bottom:2px solid blue;">A Skyscraper and An Innovative Geometrical Method————2018.07.22</span>](https://github.com/zhouchw5/geometric.github.io/blob/master/README.md)**                
              
-              
+          
+## Perturbations along the great gear of history             
+**[<span style="border-bottom:2px solid blue;">Still hear from Huawei though I have left this special organization for more than half a year————2018.12.23</span>](https://github.com/zhouchw5/interaction.github.io/blob/huawei_trade-war/README.md)**                 
+           
 ## Iterating Thinking of Our Ending          
 **[<span style="border-bottom:2px solid blue;">Iterating Thinking of Our Ending————2018.08.28</span>](https://www.zhouchuwei.com/till_the_end.github.io/)**  
 
