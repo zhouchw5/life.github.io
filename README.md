@@ -19,7 +19,9 @@
 ## Perturbations along the great gear of history             
 **[<span style="border-bottom:2px solid blue;">Still hear from Huawei though I have left this special organization for more than half a year————2018.12.23</span>](https://github.com/zhouchw5/interaction.github.io/blob/huawei_trade-war/README.md)**                 
            
-## Iterating Thinking of Our Ending          
+## Iterating Thinking of Our Ending                 
+**[<span style="border-bottom:2px solid blue;">Pre-Hogmanay： Wish to Categorize My Life in a Better Way————2018.12.30</span>](https://github.com/zhouchw5/interaction.github.io/blob/How-to-categorise-my-life/README.md)**                            
+                 
 **[<span style="border-bottom:2px solid blue;">Iterating Thinking of Our Ending————2018.08.28</span>](https://www.zhouchuwei.com/till_the_end.github.io/)**  
 
                      
